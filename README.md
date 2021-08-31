@@ -1,1 +1,1 @@
-# AkmalzEzty.github.io
+# AkmalzEzty.github.com
